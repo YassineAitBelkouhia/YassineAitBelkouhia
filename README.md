@@ -1,6 +1,6 @@
 ### Hi there 👋, I'm Yassine.
 
-<img src"/gitHub.png">
+<img src"gitHub.png">
 
 
 
