@@ -4,7 +4,7 @@
 ### - 👯 I’m looking to collaborate  with other content creators 
 ### - 💬 Ask me about ... Anything 
 
-### - ⚡ Fun fact: Might seem extremely taciturn but  m kinda **cool**   
+### - ⚡ I Might seem extremely taciturn but  m kinda **cool**   
 
 <img src="gitHub.png" alt="">
 
