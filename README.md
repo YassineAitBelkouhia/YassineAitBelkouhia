@@ -1,6 +1,6 @@
 ## Hi there 👋🏽, I'm Yassine. 😺
 
- ### - 🔭 I’m currently working on my first "**BIG**" Website 
+ ### - 🔭 I’m currently learning ... Everything
 ### - 👯 I’m looking to collaborate  with other content creators 
 ### - 💬 Ask me about ... Anything 
 
